@@ -12,3 +12,5 @@ The films of three rounds were the code was used can be seen here:
 - [Round two](https://plus.google.com/photos/+MiguelDuarte42/albums/5897903581365221393/5897920196249018786?authkey=CIqlwJiw_JS1qwE&pid=5897920196249018786&oid=104101243276508464791)
 - [Round three](https://plus.google.com/photos/+MiguelDuarte42/albums/5897903581365221393/5897925647465429538?authkey=CIqlwJiw_JS1qwE&pid=5897925647465429538&oid=104101243276508464791)
 
+And the photo of the fantastic team:
+![alt](https://lh5.googleusercontent.com/-6qmWEqm2Gxc/UdmfJDIPD5I/AAAAAAABCbY/ftVX8_0LKWg/w767-h511-no/IMG_0360.jpg)
